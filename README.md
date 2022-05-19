@@ -1,3 +1,3 @@
 - 🔥 Hey, I’m @TurboUltra
 - 👀 I’m interested in pure DEGEN
-- 🌱 I’m creating most inclusive space for special people
+- 🌱 I want to create most inclusive space for special people
